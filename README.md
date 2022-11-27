@@ -1,2 +1,2 @@
 # gmg-gamerz.github.io
-# test
+I have no idea what im doing
